@@ -1,5 +1,9 @@
 # PlayIntegrityFix By MarwanRoot 
 
+⭐️Telegram : https://t.me/MarwanRoot
+                                                                   💫Channel  https://t.me/online_rooting1  
+
+
 PlayIntegrityFix – Android 10- 16 Support & ReZygisk & Zygisknext & 
 
 🟢 MEETS_BASIC_INTEGRITY ✅
@@ -11,7 +15,7 @@ PlayIntegrityFix – Android 10- 16 Support & ReZygisk & Zygisknext &
 For any inquiries or problems, you can contact me on Telegram or in the channel group for assistance 🫀                                             
 
                                                                    ⭐️Telegram : https://t.me/MarwanRoot
-                                                                   💫Channel https://t.me/online_rooting1  
+                                                                   💫Channel  https://t.me/online_rooting1  
 
                                                                    
 
@@ -22,7 +26,7 @@ For any inquiries or problems, you can contact me on Telegram or in the channel 
                                                                                                                  
                                                                                                                       ❗ ملاحظة! 
 
-                                                                                     اي استفسار او مشضكله يمكنك مراسلتي علي التيليجرام او في جروب القناة للمساعده 🫀
+                                                                                         اي استفسار او مشضكله يمكنك مراسلتي علي التيليجرام او في جروب القناة للمساعده 🫀  
 
 
 
